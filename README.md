@@ -6,6 +6,7 @@
 Если ты искал, как arkada casino скачать, ты по адресу. Ниже — подробное руководство и всё, что стоит знать перед установкой.
 
 ➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/arkadacasinoapp/blob/main/ArkadaCasino.apk "СКАЧАТЬ APK")**
+
 ➡️ **[ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ](https://clck.ru/3Mmm7v "ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ")**
 
 ## Почему стоит скачать Arkada Casino на Андроид
